@@ -1,4 +1,4 @@
-### Hi there 👋
+### cato &rarr; [^•ﻌ•^](https://lavo2.github.io/)
 
 <!--
 **lavo2/lavo2** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
